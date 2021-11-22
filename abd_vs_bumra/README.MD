@@ -1,4 +1,4 @@
-ABD against bhumra or vice versa
+Ab de villiers against Jasprit Bumrah or vice versa
 
 # Analysis Summary
 
